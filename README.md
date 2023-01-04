@@ -1,3 +1,1 @@
 - 👋 Hi, I’m António! How are you?
-- 👀 Especially curious about innovation and sustainability
-- 🌱 Currently, i have been working on my product management skills and exploring the no-code landscape
